@@ -1,1 +1,1 @@
-creating a new barnch is quick & simple
+creating a new barnch is quick and simple
